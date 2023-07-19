@@ -1,0 +1,2 @@
+# alzheimers-ai-solution-imaginecup
+ 
